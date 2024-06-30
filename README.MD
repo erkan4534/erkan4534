@@ -1,1 +1,1 @@
-![Banner](https://github.com/erkan4534/erkan4534/blob/main/github_banner.png)
+![Banner](https://github.com/erkan4534/erkan4534/blob/main/github_banner_final.png)
